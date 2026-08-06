@@ -1,1 +1,0 @@
-# ccna_study
